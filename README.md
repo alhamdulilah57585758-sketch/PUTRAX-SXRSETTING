@@ -1,0 +1,2 @@
+# PUTRAX-SXRSETTING
+saluran putraX SXR
